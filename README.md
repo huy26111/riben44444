@@ -26,4 +26,4 @@
 
 收藏成人羞羞免费，让你在2025年体验真正自由、安全、高速的看片生活。永久免费、日本原版、每日更新，不容错过！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/huy26111/riben44444 ）</span> 
